@@ -4,4 +4,4 @@
 
 --------------------------------
 
-![не придумал](https://avatars.mds.yandex.net/i?id=ade1c6255b3e738829b644a6960247b413dd2925-10637415-images-thumbs&n=13)
+![не придумал](https://sun9-42.userapi.com/impf/c856120/v856120787/1388ae/Fo3o4OrMNHI.jpg?size=604x598&quality=96&sign=707e406e8797a843aa33e1ff3624f044&type=album)
